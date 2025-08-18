@@ -9,7 +9,7 @@
 
 𐔌  ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  about me!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
-he/she . ace . unlabeled . minor . adhd . basic dni . 
+Salutations!! You may call me RAHHHH!! (Rah) . he/she . ace . unlabeled . minor . adhd . basic dni . 
 
   ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  fandoms!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
@@ -17,8 +17,8 @@ main interest rn: The Beatles !!
 
 game:  Identity V, Team Fortress 2, Omori, Cookie Run, Ace Attorney, Date Everything
 
-show/movie: Lolirock, Wordgirl, Mob Psycho 100, Soul Eater, Rick & Morty, Smiling Friends, 
+show/movie: Lolirock, Wordgirl, Mob Psycho 100, Soul Eater, Rick & Morty, Smiling Friends,
 
-other: The Beatles, Gorillaz, Lackadaisy, Hamilton, Monster High, Ever After High, The Eltingville Club , Law of Talos / Endzone
+other: The Beatles, Gorillaz, Lackadaisy, Hamilton, Monster High, Ever After High, The Eltingville Club , Law of Talos / Endzone , X-Men
 
 - + many more!! (we’d be here all day if I named them all haha)
