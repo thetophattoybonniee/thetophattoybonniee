@@ -24,3 +24,5 @@ show/movie: Lolirock, Wordgirl, Mob Psycho 100, Soul Eater, Rick & Morty, Smilin
 other: The Beatles, Gorillaz, Mindless Self Indulgence (I don't supoort them!!), Lackadaisy, Hamilton, Monster High, Ever After High, The Eltingville Club , Law of Talos / Endzone , X-Men , Flamingo
 
 - + many more!! (we’d be here all day if I named them all haha)
+
+⊹₊⟡⋆ Thank you for reading ,, have a wonderful day!!~ ♪‧₊˚
