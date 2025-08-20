@@ -5,7 +5,7 @@
 
 ★🎸🎧` ⋆｡ “𝐓𝐚𝐤𝐞 𝐦𝐲 𝐬𝐦𝐢𝐥𝐞 𝐚𝐧𝐝 𝐦𝐲 𝐡𝐞𝐚𝐫𝐭, 𝐭𝐡𝐞𝐲 𝐰𝐞𝐫𝐞 𝐲𝐨𝐮𝐫𝐬 𝐟𝐫𝐨𝐦 𝐭𝐡𝐞 𝐬𝐭𝐚𝐫𝐭.” °⋆  | | ✦ ⠂⠂୨୧ [ mostly active on tiktok & tumblr ]
 
-╰┈➤ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧
+╰┈➤ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [guns.lol ₊˚⊹ ᰔ](https://guns.lol/tophattoybonnie)
 
 [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonniee) ✦ ⠂⠂୨୧ [tumblr ˚୨୧⋆｡](https://www.tumblr.com/thetophattoybonnie) ✦ ⠂⠂୨୧ [youtube ⟡ ݁₊ .](https://www.youtube.com/@TheTopHatToyBonnie) ✦ ⠂⠂୨୧ [pinterest ₊˚⊹♡](https://www.pinterest.com/thetophattoybonnie)
 
