@@ -11,18 +11,23 @@
 
 𐔌  ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  about me!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
-Salutations!! You may call me RAHHHH!! (Rah) . he/she . ace . unlabeled . minor . adhd . basic dni . 
+Salutations!! You may call me RAHHHH!! (Rah)
+he/she . ace . unlabeled . minor . adhd . basic dni . 
 
   ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  fandoms!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
-main interest rn: The Beatles !!
+**main interest rn: The Beatles !!**
 
 game:  Identity V, Team Fortress 2, Omori, Cookie Run, Ace Attorney, Date Everything
 
 show/movie: Lolirock, Wordgirl, Mob Psycho 100, Soul Eater, Rick & Morty, Smiling Friends,
 
-other: The Beatles, Gorillaz, Mindless Self Indulgence (I don't supoort them!!), Lackadaisy, Hamilton, Monster High, Ever After High, The Eltingville Club , Law of Talos / Endzone , X-Men , Flamingo
+other: **The Beatles, Gorillaz,** Mindless Self Indulgence (I don't support them!!), **Lackadaisy, Hamilton,** Monster High, Ever After High, The Eltingville Club , Law of Talos / Endzone , X-Men , Flamingo
 
 - + many more!! (we’d be here all day if I named them all haha)
+
+﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  dni   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
+
+basic dni . anyone under 13 y/o . tcoaal fans , psychocuties fans , tcc , **SOME** forsaken & dandys world fans , proshipper or toxic shippers , insensitive people . just anyone problematic honestly
 
 ⊹₊⟡⋆ Thank you for reading ,, have a wonderful day!!~ ♪‧₊˚
