@@ -13,6 +13,7 @@
 
 Salutations!! You may call me RAHHHH!! (Rah)
 he/she . ace . unlabeled . minor . adhd . basic dni . i block freely (on tiktok & tumblr)
+DO NOT REUPLOAD / STEAL / TRACE my art,,  EVEN if you credit me.
 
   ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  fandoms!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
@@ -29,7 +30,7 @@ Ever After High, The Eltingville Club , Law of Talos / Endzone , X-Men , Flaming
 
 ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  dni   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
-basic dni . anyone under 13 y/o . ai aupporters/users . tcoaal fans , psychocuties fans , tcc , **SOME** forsaken & dandys world fans ,
+basic dni . anyone under 13 y/o . gen ai aupporters/users . tcoaal fans , psychocuties fans , tcc , **SOME** forsaken & dandys world fans ,
 proshipper or toxic shippers , insensitive people . just anyone problematic honestly
 
 ⊹₊⟡⋆ Thank you for reading ,, have a wonderful day!!~ ♪‧₊˚
