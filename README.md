@@ -34,3 +34,5 @@ basic dni . anyone under 13 y/o . gen ai aupporters/users . tcoaal fans , psycho
 proshipper or toxic shippers , insensitive people . just anyone problematic honestly
 
 ⊹₊⟡⋆ Thank you for reading ,, have a wonderful day!!~ ♪‧₊˚
+
+![Image](https://github.com/user-attachments/assets/93bb0e35-4c7a-4b42-8570-5514eb0fbb64)
