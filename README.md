@@ -23,8 +23,11 @@ game:  Identity V, Team Fortress 2, Omori, Cookie Run, Ace Attorney, Date Everyt
 
 show/movie: Lolirock, Wordgirl, Mob Psycho 100, Soul Eater, Rick & Morty, Smiling Friends,
 
-other: **The Beatles, Gorillaz,** Mindless Self Indulgence (I don't support them!!), **Lackadaisy, Hamilton,** Monster High, 
-Ever After High, The Eltingville Club , Law of Talos / Endzone , X-Men , Flamingo
+music : **The Beatles, Gorillaz,** Mindless Self Indulgence (I don't support them!!), 
+My Chemical Romance (i'm a new fan)
+
+other: **Lackadaisy, Hamilton,** Monster High, Ever After High, The Eltingville Club , 
+Law of Talos / Endzone , X-Men , Flamingo
 
 - + many more!! (we’d be here all day if I named them all haha)
 
