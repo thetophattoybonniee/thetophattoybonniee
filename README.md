@@ -1,5 +1,6 @@
 # thetophattoybonniee
 ![Image](https://github.com/user-attachments/assets/41c935b9-d33e-4350-ae80-14c3f2c51b7f)
+![Image](https://github.com/user-attachments/assets/60da763f-1d14-4386-a106-4dccbb504f74)
 
 𐔌  ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  my socials!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
@@ -14,6 +15,8 @@
 Salutations!! You may call me RAHHHH!! (Rah)
 he/she . ace . unlabeled . minor . adhd . basic dni . i block freely (on tiktok & tumblr)
 DO NOT REUPLOAD / STEAL / TRACE my art,,  EVEN if you credit me.
+
+![Image](https://github.com/user-attachments/assets/08ce3b29-a690-4291-8d8d-046a46749ad1)
 
   ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  fandoms!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
@@ -31,10 +34,15 @@ Law of Talos / Endzone , X-Men , Flamingo
 
 - + many more!! (we’d be here all day if I named them all haha)
 
+![Image](https://github.com/user-attachments/assets/08ce3b29-a690-4291-8d8d-046a46749ad1)
+
+
 ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  dni   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
 basic dni . anyone under 13 y/o . gen ai aupporters/users . tcoaal fans , psychocuties fans , tcc , **SOME** forsaken & dandys world fans ,
 proshipper or toxic shippers , insensitive people . just anyone problematic honestly
+
+![Image](https://github.com/user-attachments/assets/08ce3b29-a690-4291-8d8d-046a46749ad1)
 
 ⊹₊⟡⋆ Thank you for reading ,, have a wonderful day!!~ ♪‧₊˚
 
