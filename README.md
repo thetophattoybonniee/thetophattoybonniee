@@ -1,9 +1,10 @@
 # thetophattoybonniee
-![Image](https://github.com/user-attachments/assets/41c935b9-d33e-4350-ae80-14c3f2c51b7f)
+![Image](https://github.com/user-attachments/assets/8f55ac6e-9559-41dd-8f15-3dc99bd6fe15)
 ![Image](https://github.com/user-attachments/assets/4e38ee5b-f570-432b-ae52-e5dc6411f5da)
 
 𐔌  ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  my socials!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
+![Image](https://github.com/user-attachments/assets/756f056d-780a-4f3e-9610-aa2cb5c9ca62)
  ★🎸🎧` ⋆｡ “𝐓𝐚𝐤𝐞 𝐦𝐲 𝐬𝐦𝐢𝐥𝐞 𝐚𝐧𝐝 𝐦𝐲 𝐡𝐞𝐚𝐫𝐭, 𝐭𝐡𝐞𝐲 𝐰𝐞𝐫𝐞 𝐲𝐨𝐮𝐫𝐬 𝐟𝐫𝐨𝐦 𝐭𝐡𝐞 𝐬𝐭𝐚𝐫𝐭.” °⋆
 
 | | ✦ ⠂⠂୨୧ [ mostly active on tiktok & tumblr ]
@@ -17,7 +18,7 @@
 
 Salutations!! You may call me RAHHHH!! (Rah)
 he/she . ace . unlabeled . minor . adhd . basic dni . i block freely (on tiktok & tumblr)
-DO NOT REUPLOAD / STEAL / TRACE my art,,  EVEN if you credit me.
+DO NOT REUPLOAD / TRACE my art,,  EVEN if you credit me.
 
 ![Image](https://github.com/user-attachments/assets/4e38ee5b-f570-432b-ae52-e5dc6411f5da)
 
@@ -27,7 +28,6 @@ DO NOT REUPLOAD / STEAL / TRACE my art,,  EVEN if you credit me.
 
 game:  Identity V, Team Fortress 2, Omori, Cookie Run, Ace Attorney, Date Everything
 
-show/movie: Lolirock, Wordgirl, Mob Psycho 100, Soul Eater, Rick & Morty, Smiling Friends,
 
 music : **The Beatles, Gorillaz,** Mindless Self Indulgence (I don't support them!!), 
 My Chemical Romance, **Oasis**, Blur, Tally Hall
@@ -48,4 +48,4 @@ proshipper or toxic shippers , insensitive people . just anyone problematic hone
 
 ⊹₊⟡⋆ Thank you for reading ,, have a wonderful day!!~ ♪‧₊˚
 
-![Image](https://github.com/user-attachments/assets/93bb0e35-4c7a-4b42-8570-5514eb0fbb64) ![Image](https://github.com/user-attachments/assets/60da763f-1d14-4386-a106-4dccbb504f74)
+![Image](https://github.com/user-attachments/assets/1283926c-be01-460f-9a8f-66b9faf91a00)
