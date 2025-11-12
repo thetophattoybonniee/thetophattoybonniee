@@ -18,7 +18,9 @@
 𐔌  ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊  about me!!   ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
 Salutations!! You may call me RAHHHH!! (Rah)
+
 he/she . ace . unlabeled . minor . adhd .
+
 basic dni . i block freely (on tiktok & tumblr)
 
 ![Image](https://github.com/user-attachments/assets/4e38ee5b-f570-432b-ae52-e5dc6411f5da)
@@ -27,8 +29,9 @@ basic dni . i block freely (on tiktok & tumblr)
 
 MOSTLY BANDOM !! 
 
-music : **The Beatles, Gorillaz,** Mindless Self Indulgence (I don't support them!!), 
-My Chemical Romance, **Oasis**, Blur, Tally Hall, Michael Jackson
+music : **The Beatles, Gorillaz, Oasis** , Mindless Self Indulgence ,
+
+My Chemical Romance , Blur , Tally Hall
 
 + im VERY multifandom (list of fandoms are on my strawpage !!)
 
