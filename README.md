@@ -8,6 +8,8 @@
  
 ![Image](https://github.com/user-attachments/assets/756f056d-780a-4f3e-9610-aa2cb5c9ca62)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&cover_image=true&theme=novatorem&show_offline=false&background_color=d3e2ff&interchange=false&profanity=false&bar_color=cbf0ff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&redirect=true)
+
 | | ✦ ⠂⠂୨୧ [ mostly active on tiktok & tumblr ]
 
 ╰┈➤ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [carrd ⋆˙⟡](https://thetophattoybonnie.carrd.co) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [guns.lol ₊˚⊹ ᰔ](https://guns.lol/tophattoybonnie)
