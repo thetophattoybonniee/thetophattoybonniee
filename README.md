@@ -13,6 +13,20 @@
 
 [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonniee) ✦ ⠂⠂୨୧ [tumblr ˚୨୧⋆｡](https://www.tumblr.com/thetophattoybonnie) ✦ ⠂⠂୨୧ [youtube ⟡ ݁₊ .](https://www.youtube.com/@TheTopHatToyBonnie) ✦ ⠂⠂୨୧ [pinterest ₊˚⊹♡](https://www.pinterest.com/thetophattoybonnie)
 
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/bfe29f37-c49a-403a-937c-2f43f078b40a" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/5f79b411-1c0b-4255-aac2-091297be5ee6" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/ec3aa43c-e048-4b77-8491-2e903f69d167" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/80621a5f-e56e-4d7d-89e1-c73eee566b3a" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/f15d12d7-2afe-49ef-bf7c-42a995a8e31f" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/cd326bd7-e3ad-4351-b4fb-ae71282beadc" />
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&cover_image=true&theme=novatorem&show_offline=false&background_color=d3e2ff&interchange=false&profanity=false&bar_color=cbf0ff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&redirect=true)
 
 ![Image](https://github.com/user-attachments/assets/4e38ee5b-f570-432b-ae52-e5dc6411f5da)
