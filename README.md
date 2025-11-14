@@ -39,6 +39,8 @@ My Chemical Romance , Blur , Tally Hall
 
 + im VERY multifandom (list of fandoms are on my strawpage !!)
 
+![Image](https://github.com/user-attachments/assets/130c040c-dde3-4b52-8aa4-306be5a4678c)
+
 ![Image](https://github.com/user-attachments/assets/4e38ee5b-f570-432b-ae52-e5dc6411f5da)˚
 
 
