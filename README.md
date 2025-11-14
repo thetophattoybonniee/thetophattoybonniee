@@ -4,8 +4,7 @@
 
  ★🎸🎧` ⋆｡ “𝐈 𝐧𝐞𝐞𝐝 𝐭𝐨 𝐛𝐞 𝐦𝐲𝐬𝐞𝐥𝐟 , 𝐈 𝐜𝐚𝐧'𝐭 𝐛𝐞 𝐧𝐨 𝐨𝐧𝐞 𝐞𝐥𝐬𝐞" °⋆
  
-![Image](https://github.com/user-attachments/assets/756f056d-780a-4f3e-9610-aa2cb5c9ca62)
-
+![Image](https://github.com/user-attachments/assets/a6a6fe0a-1a71-4b37-b756-d57f7cbbf8a6)
 
 | | ✦ ⠂⠂୨୧ [ mostly active on tiktok & tumblr ]
 
