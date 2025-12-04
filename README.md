@@ -36,7 +36,7 @@
 
 music : **The Beatles, Gorillaz, Oasis** , Mindless Self Indulgence ,
 
-My Chemical Romance , Blur , Tally Hall
+My Chemical Romance , Blur , **Tally Hall** , The Monkees , Rolling Stones, Arctic Monkeys
 
 + im VERY multifandom (list of fandoms are on my strawpage !!)
 
