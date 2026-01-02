@@ -19,7 +19,7 @@
 
 ![Image](https://github.com/user-attachments/assets/07c065c8-62d2-4093-9580-acb3c41c724d)
 
-✦ ⠂⠂୨୧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonniee) ✦ ⠂⠂୨୧ [tumblr ˚୨୧⋆｡](https://www.tumblr.com/thetophattoybonnie) ✦ ⠂⠂୨୧ [pinterest ₊˚⊹♡](https://www.pinterest.com/thetophattoybonnie)
+✦ ⠂⠂୨୧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonnie) ✦ ⠂⠂୨୧ [tumblr ˚୨୧⋆｡](https://www.tumblr.com/thetophattoybonnie) ✦ ⠂⠂୨୧ [pinterest ₊˚⊹♡](https://www.pinterest.com/thetophattoybonnie)
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/f7d5712f-fb3b-4c3c-a8b9-dd716343cc73" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d21af3ee-2fb4-4c26-b50e-a7a4a06ce67a" />
