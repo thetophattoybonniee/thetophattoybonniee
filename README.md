@@ -2,7 +2,9 @@
 (𝐈𝐬 𝐦𝐲 𝐚𝐦𝐩 𝐭𝐨𝐨 𝐡𝐢𝐠𝐡?) 𝐍𝐨, 𝐭𝐮𝐫𝐧 𝐢𝐭 𝐮𝐩 𝐦𝐨𝐫𝐞! ❤️
 
 ![Image](https://github.com/user-attachments/assets/5330e49a-6d26-40ab-a0ba-5c57eba2a4d5)
- 
+
+
+c+h and int unless im with my friends/sitting with someone already . w2i to get my attention !! also feel free to ttm if we have similar interests !! ^^
 
 ![Image](https://github.com/user-attachments/assets/48af185a-cbd6-41c3-ab9d-55a54c0d3e9d) ![Image](https://github.com/user-attachments/assets/ddb8314d-3426-48e9-9af3-8f9f3c8f4d05) ![Image](https://github.com/user-attachments/assets/05fa8533-3a8d-44db-be36-f29562b1d2d8) ![Image](https://github.com/user-attachments/assets/3a38dd58-11a9-4cb0-b5f6-9ed27f175714) ![Image](https://github.com/user-attachments/assets/f782ad90-88e1-49d4-8741-7e76beae5703)
 
