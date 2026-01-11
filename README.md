@@ -1,6 +1,7 @@
 # 𝐑𝐞𝐝 𝐭𝐡𝐞 𝐩𝐫𝐨𝐮𝐝 𝐥𝐨𝐮𝐝 𝐠𝐮𝐲 𝐰𝐞 𝐚𝐝𝐨𝐫𝐞!
 (𝐈𝐬 𝐦𝐲 𝐚𝐦𝐩 𝐭𝐨𝐨 𝐡𝐢𝐠𝐡?) 𝐍𝐨, 𝐭𝐮𝐫𝐧 𝐢𝐭 𝐮𝐩 𝐦𝐨𝐫𝐞! ❤️
 
+![](https://komarev.com/ghpvc/?username=thetophattoybonniee&color=A0C7E6&style=plastic&label=♪‧₊˚&abbreviated=true)
 ![Image](https://github.com/user-attachments/assets/5330e49a-6d26-40ab-a0ba-5c57eba2a4d5)
 
 
