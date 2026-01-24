@@ -37,9 +37,9 @@ PLEASE ask if you wanna take inspo on my ponies !!
 
   ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹   ‧₊ ***MOSTLY BANDOM !!***  ‧₊ ˚  ⊹ ࣭ ⭑ . ₊ ⊹ .₊๋
 
-music : **The Beatles, Gorillaz, Oasis** , Mindless Self Indulgence ,
+music : **The Beatles, Tally Hall , Oasis** ,
 
-My Chemical Romance , Blur , **Tally Hall** , The Monkees , Rolling Stones, Arctic Monkeys
+My Chemical Romance , Blur , Gorillaz , The Monkees , Rolling Stones, Arctic Monkeys
 
 + im VERY multifandom (list of fandoms are on my strawpage !!)
 
