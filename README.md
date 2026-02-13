@@ -39,7 +39,7 @@ PLEASE ask if you wanna take inspo on my ponies !!
 
 music : **The Beatles, Tally Hall , Oasis** ,
 
-My Chemical Romance , Blur , Gorillaz , The Monkees , Rolling Stones, Arctic Monkeys
+The Monkees , Gorillaz , Blur , My Chemical Romance , Tyler, The Creator
 
 + im VERY multifandom (list of fandoms are on my strawpage !!)
 
