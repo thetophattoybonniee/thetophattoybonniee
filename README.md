@@ -4,6 +4,8 @@
 ![](https://komarev.com/ghpvc/?username=thetophattoybonniee&color=A0C7E6&style=plastic&label=♪‧₊˚&abbreviated=true)
 ![Image](https://github.com/user-attachments/assets/5330e49a-6d26-40ab-a0ba-5c57eba2a4d5)
 
+SAW MICKY DOLENZ 2.14.26 !!
+seeing Ringo Starr 6.14.26 & MCR 8.30.26
 
 c+h and int unless im with my friends/sitting with someone already . w2i to get my attention . also feel free to ttm if we have similar interests !! ^^
 PLEASE ask if you wanna take inspo on my ponies !! 
