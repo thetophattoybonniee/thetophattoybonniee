@@ -18,6 +18,7 @@
 ๋ ࣭ ⭑  ゛c+h and int unless im with my friends already . w2i to get my attention  ⸝⸝.ᐟ⋆
 
 ⋮ ⌗ ┆hi im rah ˊˎ-
+
 ╰┈➤ minor . artist . basic dni ˊˎ-
 
 ๋ ࣭ ⭑ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [spacehey ⋆ ꩜ ⋆](https://spacehey.com/thetophattoybonnie) ˊˎ- 
