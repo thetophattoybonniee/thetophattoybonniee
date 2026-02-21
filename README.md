@@ -11,7 +11,7 @@
 ……………………![Image](https://github.com/user-attachments/assets/159c92af-9b20-4976-b8fe-9c22c709becc)……………………
 
 <div align="center">
-✦. ♬ ݁˖ SAW MICKY DOLENZ 2.14.26 !!
+✦. ♬ ݁˖ SAW MICKY DOLENZ 2.13.26 !!
  
 ✦ ꒰ seeing Ringo Starr 6.14.26 & MCR 8.30.26 ꒱
 
