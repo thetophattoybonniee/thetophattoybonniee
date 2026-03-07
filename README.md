@@ -13,7 +13,7 @@
 <div align="center">
 ✦. ♬ ݁˖ SAW MICKY DOLENZ 2.13.26 !!
  
-✦ ꒰ seeing Ringo Starr 6.14.26 & MCR 8.30.26 ꒱
+✦ ꒰ seeing Ringo Starr 6.14.26 ,, MCR 8.30.26 ,, Gorillaz 10.25.26 ꒱
 
 ๋ ࣭ ⭑  ゛c+h and int unless im with my friends already . w2i to get my attention  ⸝⸝.ᐟ⋆
 
