@@ -27,7 +27,11 @@
 
 ๋ ࣭ ⭑ ꒰ current interests ꒱
 
-the beatles, oasis, tally hall, blur, gorillaz, my chemical romance, the monkees & tyler, the creator  ⸝⸝.ᐟ⋆
+**the beatles, oasis, tally hall**, blur, gorillaz, my chemical romance, the monkees & tyler, the creator  ⸝⸝.ᐟ⋆
+
+๋ ࣭ ⭑ ꒰ other interests ꒱
+
+star trek, lackadaisy, monster high, ever after high, hamilton, mp100, mr osomatsu
 
 ｡𖦹°‧ thank you for reading. 𓂃˖ ࣪⊹
 
