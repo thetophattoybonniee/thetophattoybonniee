@@ -8,8 +8,8 @@
 
 <img width="1000" height="100" alt="Image" src="https://github.com/user-attachments/assets/904292de-f986-4dbc-99ed-27df8f676575" />
 
-……………………![Image](https://github.com/user-attachments/assets/7f25ffe6-c939-4506-b84a-59be57060401)
-……………………
+……………![Image](https://github.com/user-attachments/assets/7f25ffe6-c939-4506-b84a-59be57060401)
+……………
 
 <div align="center">
 ✦. ♬ ݁˖ SAW MICKY DOLENZ 2.13.26 !!
