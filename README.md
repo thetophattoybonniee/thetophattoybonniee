@@ -31,7 +31,7 @@
 
 ๋ ࣭ ⭑ ꒰ other interests ꒱
 
-star trek, lackadaisy, monster high, ever after high, hamilton, mp100, mr osomatsu
+brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, mr osomatsu
 
 ｡𖦹°‧ thank you for reading. 𓂃˖ ࣪⊹
 
