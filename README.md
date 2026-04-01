@@ -20,7 +20,7 @@
 
 ⋮ ⌗ ┆hi im rah ˊˎ-
 
-╰┈➤ minor . artist . basic dni ˊˎ-
+╰┈➤ minor . artist . istj , 5w6 . basic dni ˊˎ-
 
 ๋ ࣭ ⭑ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [spacehey ⋆ ꩜ ⋆](https://spacehey.com/thetophattoybonnie) ˊˎ- 
 
