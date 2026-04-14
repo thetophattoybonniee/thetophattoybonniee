@@ -24,7 +24,7 @@
 
 ｡𖦹°‧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonnie) ✦ ⠂⠂୨୧ [tumblr ˚୨୧⋆｡](https://www.tumblr.com/thetophattoybonnie) ✦ ⠂⠂୨୧ [pinterest ₊˚⊹♡](https://www.pinterest.com/thetophattoybonnie) ˊˎ-
 
-๋ ࣭ ⭑ ꒰ current interests ꒱
+๋ ࣭ ⭑ ꒰ music interests ꒱
 
 **the beatles, oasis, tally hall**, blur, gorillaz, my chemical romance, the monkees & tyler, the creator  ⸝⸝.ᐟ⋆
 
