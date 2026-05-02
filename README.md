@@ -32,7 +32,7 @@
 
 ๋ ࣭ ⭑ ꒰ other interests ꒱
 
-brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, nintendo
+brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, nintendo, osomatsu-san
 
 ｡𖦹°‧ thank you for reading. 𓂃˖ ࣪⊹
 
