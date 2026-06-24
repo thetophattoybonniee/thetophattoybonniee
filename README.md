@@ -28,11 +28,11 @@
 
 ๋ ࣭ ⭑ ꒰ music interests ꒱
 
-**the beatles, oasis, tally hall**, blur, gorillaz, my chemical romance, the monkees & tyler, the creator  ⸝⸝.ᐟ⋆
+**the beatles, oasis, tally hall**, blur, gorillaz, my chemical romance, the monkees, michael jackson & tyler, the creator  ⸝⸝.ᐟ⋆
 
 ๋ ࣭ ⭑ ꒰ other interests ꒱
 
-brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, nintendo, osomatsu-san
+nintendo, **osomatsu-san** , brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, aggretsuko, danganronpa
 
 ｡𖦹°‧ thank you for reading. 𓂃˖ ࣪⊹
 
