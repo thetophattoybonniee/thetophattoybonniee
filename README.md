@@ -32,7 +32,7 @@
 
 ๋ ࣭ ⭑ ꒰ other interests ꒱
 
-nintendo, **osomatsu-san** , brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, aggretsuko, danganronpa
+nintendo (mother series + pokemon), **osomatsu-san** , brawl stars, star trek, lackadaisy, monster high, ever after high, hamilton, mp100, aggretsuko, danganronpa
 
 ｡𖦹°‧ thank you for reading. 𓂃˖ ࣪⊹
 
