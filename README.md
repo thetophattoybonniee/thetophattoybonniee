@@ -26,8 +26,6 @@
 
 marvel (mostly x-men), nintendo (mother series + pokemon), **osomatsu-san**, lackadaisy, hamilton, mp100
 
-｡𖦹°‧ thank you for reading. 𓂃˖ ࣪⊹
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&cover_image=true&theme=novatorem&show_offline=false&background_color=d3e2ff&interchange=false&profanity=false&bar_color=cbf0ff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&redirect=true)
 </div>
 
