@@ -3,7 +3,7 @@
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=thetophattoybonniee&color=A0C7E6&style=plastic&label=RUMRUNNERS.♪‧₊˚&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=thetophattoybonniee&color=A0C7E6&style=plastic&label=♪‧₊˚&abbreviated=true)
 
 </div>
 <img width="2048" height="225" alt="Image" src="https://github.com/user-attachments/assets/ac8740f5-aa55-4adb-b97c-c464e1081ce7" />
