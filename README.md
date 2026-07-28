@@ -6,25 +6,16 @@
 
 </div>
 
-<img width="1000" height="100" alt="Image" src="https://github.com/user-attachments/assets/904292de-f986-4dbc-99ed-27df8f676575" />
-
-………………![Image](https://github.com/user-attachments/assets/f1b61159-2320-44ef-81c4-d375f317dcc0)
-
+<img width="953" height="415" alt="Image" src="https://github.com/user-attachments/assets/1276ca1f-507c-4557-9cdd-5d32286a828e" />
 
 <div align="center">
-✦. ♬ ݁˖ SAW MICKY DOLENZ 2.13.26 + RINGO STARR 6.14.26 !!
- 
-✦ ꒰ seeing MCR 8.30.26 ,, Gorillaz 10.25.26 ꒱
 
-๋ ࣭ ⭑  ゛c+h and int unless im with my friends already . w2i to get my attention  ⸝⸝.ᐟ⋆
 
 ⋮ ⌗ ┆hi im rah ˊˎ-
 
 ╰┈➤ minor . artist . istj , 5w6 . basic dni ˊˎ-
 
-๋ ࣭ ⭑ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [spacehey ⋆ ꩜ ⋆](https://spacehey.com/thetophattoybonnie) ˊˎ- 
-
-｡𖦹°‧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonnie) ✦ ⠂⠂୨୧ [tumblr ˚୨୧⋆｡](https://www.tumblr.com/thetophattoybonnie) ✦ ⠂⠂୨୧ [pinterest ₊˚⊹♡](https://www.pinterest.com/thetophattoybonnie) ˊˎ-
+๋ ࣭ ⭑ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonnie) ｡𖦹°‧ 
 
 ๋ ࣭ ⭑ ꒰ music interests ꒱
 
