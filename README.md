@@ -26,7 +26,7 @@ i have adhd (diagnosed), i block freely, proshippers dni, use tonetags for me
 
  ๋ ࣭ ⭑ **꒰ music interests ꒱**
 
-the beatles, oasis, tally hall**, blur, gorillaz, my chemical romance, the monkees, michael jackson & tyler, the creator  ⸝⸝.ᐟ⋆
+the beatles, oasis, tally hall, blur, gorillaz, my chemical romance, the monkees, michael jackson & tyler, the creator  ⸝⸝.ᐟ⋆
 
  ๋ ࣭ ⭑ **꒰ other interests ꒱**
 
