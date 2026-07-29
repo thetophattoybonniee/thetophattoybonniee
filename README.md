@@ -22,7 +22,7 @@
 
 ๋ ࣭ ⭑ ꒰ byi ꒱
 
-i have adhd (diagnosed), i block freely, use tonetags for me, avoid discussing abt politics + religion around me thanks x
+i have adhd (diagnosed), i block freely, proshippers dni, use tonetags for me
 
  ࣭ ⭑ ꒰ music interests ꒱
 
