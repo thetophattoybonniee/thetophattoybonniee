@@ -1,4 +1,6 @@
-# "ᴛʜᴇ ɴᴀᴍᴇ'ꜱ ɢᴀᴍʙɪᴛ, ᴍᴏɴ ᴀᴍɪ. ʀᴇᴍᴇᴍʙᴇʀ ɪᴛ." ๋ ࣭ ⭑
+# 🃏 ๋ ࣭ ⭑
+
+## $${\color{#ff2061}"The\space name's\space Gambit,\space mon\space ami.\space Remember\space it.”\space}$$ 
 
 
 <div align="center">
