@@ -16,11 +16,14 @@
 
 ⋮ ⌗ ┆hi im rah ˊˎ-
 
-╰┈➤ minor . artist . istj . basic dni + i block freely ˊˎ-
+╰┈➤ minor . artist . istj . basic dni ˊˎ-
 
 ๋ ࣭ ⭑ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonnie) ｡𖦹°‧ 
 
-๋ ࣭ ⭑ ꒰ music interests ꒱
+๋ ࣭ ⭑ ꒰ byi ꒱
+i have adhd (diagnosed), i block freely, use tonetags for me, avoid discussing abt politics + religion around me thanks x
+
+ ࣭ ⭑ ꒰ music interests ꒱
 
 **the beatles, oasis, tally hall**, blur, gorillaz, my chemical romance, the monkees, michael jackson & tyler, the creator  ⸝⸝.ᐟ⋆
 
