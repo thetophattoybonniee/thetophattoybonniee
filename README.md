@@ -31,7 +31,6 @@ i have adhd (diagnosed), i block freely, use tonetags for me, avoid discussing a
 
 marvel (mostly x-men), nintendo (mother series + pokemon), **osomatsu-san**, lackadaisy, hamilton, mp100
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&cover_image=true&theme=novatorem&show_offline=false&background_color=d3e2ff&interchange=false&profanity=false&bar_color=cbf0ff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&redirect=true)
-</div>
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/763b5d54-3568-4981-8e8f-75ad45d962b4" />  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&cover_image=true&theme=novatorem&show_offline=false&background_color=d3e2ff&interchange=false&profanity=false&bar_color=cbf0ff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=0yz2pikinp8sdp60ja4yyh5yh&redirect=true) <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/326305bc-e935-4144-9c38-c54fdd35ffa5" /> </div>
 
 <img width="2048" height="80" alt="Image" src="https://github.com/user-attachments/assets/b3b9efb6-35e9-4600-9108-a890cc3bdc90" />
