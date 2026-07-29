@@ -21,6 +21,7 @@
 ๋ ࣭ ⭑ [sign my ata!! ♪‧₊˚ ](https://thetophattoybonnie.atabook.org) ✦ ⠂⠂୨୧ [strawpage ⊹ ࣭ ⭑](https://thetophattoybonnie.straw.page/) ✦ ⠂⠂୨୧ [tiktok ⋆˚꩜｡](https://www.tiktok.com/@thetophattoybonnie) ｡𖦹°‧ 
 
 ๋ ࣭ ⭑ ꒰ byi ꒱
+
 i have adhd (diagnosed), i block freely, use tonetags for me, avoid discussing abt politics + religion around me thanks x
 
  ࣭ ⭑ ꒰ music interests ꒱
